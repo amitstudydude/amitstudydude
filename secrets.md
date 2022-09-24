@@ -18,6 +18,7 @@
 
 [Facebook sonw3940@gmail.com   ]( https://totp.danhersam.com/#/YMMTDNYJHG5ABEKJJVYWPC4YLUGUA6YX) YMMT DNYJ HG5A BEKJ JVYW PC4Y LUGU A6YX
 
+[Facebook jhajikv50@outlook.com ]( https://totp.danhersam.com/#/BNXUGWCTPY676QUKRG7G6N6SANKN2MQU ) BNXU GWCT PY67 6QUK RG7G 6N6S ANKN 2MQU
 
 - API senim90625@3dinews.com 2IM4SWXVUO4Q2WAVHVA3ZPCMVPZNVK7G
 
