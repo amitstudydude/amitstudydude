@@ -25,8 +25,10 @@
 [Facebook jhajikv50@outlook.com ]( https://totp.danhersam.com/#/BNXUGWCTPY676QUKRG7G6N6SANKN2MQU ) BNXU GWCT PY67 6QUK RG7G 6N6S ANKN 2MQU
 
 [INSTAGRAM jhajikv50@outlook.com ]( https://totp.danhersam.com/#/A6FSUMJ7GMGRXJK6BVBPCE575ROM2ZKQ ) A6FS  UMJ7  GMGR  XJK6 BVBP  CE57  5ROM  2ZKQ
-- API senim90625@3dinews.com 2IM4SWXVUO4Q2WAVHVA3ZPCMVPZNVK7G
-
+- API senim90625@3dinews.com 
+```bash
+2IM4SWXVUO4Q2WAVHVA3ZPCMVPZNVK7G
+```
 - mail.com jhaoajka@mail.com 
 
 - GITHUB 7sk8g739g@mozmail.com  jha@jhajikv.anonaddy.com
