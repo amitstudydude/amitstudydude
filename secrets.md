@@ -30,6 +30,12 @@ viwobaf932@teknowa.com
 ```
 cejeg14609@xegge.com
 ```
+```
+jhajikv@gmail.com
+```
+```
+Satyana@1234
+```
 [GitHub - amit-study ]( https://totp.danhersam.com/#/H6QCPKBFNPZH3N2N ) H6QCPKBFNPZH3N2N 0q1059n7@jhajikv.anonaddy.com
 
 [Firefox jhajikv ](https://totp.danhersam.com/#/N5ME6K32IRWEKNCFMVZDQ4SRF5FU6SSD ) N5ME 6K32 IRWE KNCF MVZD Q4SR F5FU 6SSD
