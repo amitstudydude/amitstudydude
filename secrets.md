@@ -25,14 +25,9 @@ amitstudydude@gmail.com
 ```
 jha@jhajikv.anonaddy.com
 ```
-[GitHub - viwobaf932@teknowa.com ]( https://totp.danhersam.com/#/2D63MQQG3GAPTQLP ) 2D63MQQG3GAPTQLP
-
-[GitHub - cejeg14609@xegge.com ]( https://totp.danhersam.com/#/2CL7EQNSXYX3DUWV )
+terabox newmai15@outlook.com
 ```
-viwobaf932@teknowa.com
-```
-```
-cejeg14609@xegge.com
+newmai15@outlook.com
 ```
 ```
 jhajikv@gmail.com
