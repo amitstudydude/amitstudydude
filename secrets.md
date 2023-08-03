@@ -1,3 +1,6 @@
+[Samsung](https://totp.danhersam.com/#/ynvhtcgaxcdrorwt)
+
+
 [jhajikv ]( https://totp.danhersam.com/#/BCZQOSEJZRGTZECSKLVUPSGTTF3VIA6R ) BCZQOSEJZRGTZECSKLVUPSGTTF3VIA6R
 
 [amitstudydude ](https://totp.danhersam.com/#/g2d2b4wv7mz6uo7ochaxh3cui3764q5i ) g2d2 b4wv 7mz6 uo7o chax h3cu i376 4q5i
