@@ -78,6 +78,7 @@ jhajikv50@outlook.com
       https://dns.adguard.com/dns-query
 
       dns.adguard.com
+      stremio  - lgdkgslhs@fuckmail.com
 
       bitbucket 7sk8g739g@mozmail.com  utT2AtgBKq9PKvckcLLN
 
