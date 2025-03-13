@@ -2,3 +2,4 @@
 * Go to [shortcut](https://github.com/amitstudydude/amitstudydude/blob/main/secrets.md)
 * Go to [guacamole](https://github.com/amitstudydude/guacamole)
 * Go to [TEMPLATE](https://github.com/amitstudydude/Template)
+* Go to [Onedrive:PC](https://1drv.ms/f/c/6009554e531a72de/EhqUQeK005FEn4QPA8NjLaoBdKFpQh_qL8Zl0yLFF5byUQ)
