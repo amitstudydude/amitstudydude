@@ -4,7 +4,7 @@
 ```
 hating61@outlook.com
 ```
-[INSTA hauhaujiza ]( https://totp.danhersam.com/#/KJT63SWHEUSKLMRDFBTN36NH7SLDBTS6 )  
+[INSTA hauhaujiza ]( https://totp.danhersam.com/#/UXTIJPD3BLVY7KM6HQTNUM6TONK2LR7F )  
 ```
 jhajikv50@outlook.com
 ```
