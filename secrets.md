@@ -1,7 +1,10 @@
 [Samsung-Satyana@12](https://totp.danhersam.com/#/ynvhtcgaxcdrorwt)
 
 [Instagram hatingsarthi hating61@outlook.com](https://totp.danhersam.com/#/5SCNZAENMWLK4U5RXBKPYEGCLSD656LI)
-
+[INSTA hauhaujiza ]( https://totp.danhersam.com/#/KJT63SWHEUSKLMRDFBTN36NH7SLDBTS6 )  
+```
+jhajikv50@outlook.com
+```
 
 [jhajikv ]( https://totp.danhersam.com/#/BCZQOSEJZRGTZECSKLVUPSGTTF3VIA6R ) BCZQOSEJZRGTZECSKLVUPSGTTF3VIA6R
 
@@ -65,10 +68,7 @@ sonw3940@gmail.com
 
 [Facebook jhajikv50@outlook.com ]( https://totp.danhersam.com/#/BNXUGWCTPY676QUKRG7G6N6SANKN2MQU ) BNXU GWCT PY67 6QUK RG7G 6N6S ANKN 2MQU
 
-[INSTAGRAM ]( https://totp.danhersam.com/#/A6FSUMJ7GMGRXJK6BVBPCE575ROM2ZKQ )  
-```
-jhajikv50@outlook.com
-```
+
 - API senim90625@3dinews.com 
 ```bash
 2IM4SWXVUO4Q2WAVHVA3ZPCMVPZNVK7G
