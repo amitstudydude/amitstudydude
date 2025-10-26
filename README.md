@@ -3,5 +3,3 @@
 * Go to [guacamole](https://github.com/amitstudydude/guacamole)
 * Go to [Onedrive:PC](https://1drv.ms/f/c/6009554e531a72de/EhqUQeK005FEn4QPA8NjLaoBdKFpQh_qL8Zl0yLFF5byUQ)
 * Go to [Hulunana56](https://github.com/hulunana56/Pilot)
-* Go to [Poplitov1](github.com/poplitov1)
-* Go to [Gullyton1](github.com/gullyton1)
