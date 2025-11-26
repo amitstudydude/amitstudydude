@@ -2,9 +2,8 @@
 
 [Samsung-Satyana@12](https://totp.danhersam.com/#/ynvhtcgaxcdrorwt)
 
-[Instagram jhajikv1711 ](https://totp.danhersam.com/#/JF67V32LKK3YT6OJQSCPGZ6U23SJEX6C)
+[Instagram jhajikv2611 ](https://totp.danhersam.com/#/6CQGSDU4E7D2YRDE3ULR2UXX55AH3WQ7)
 ```
-jhajikv1711@outlook.com
 ```
 [INSTA hauhaujiza ]( https://totp.danhersam.com/#/UXTIJPD3BLVY7KM6HQTNUM6TONK2LR7F )  
 ```
